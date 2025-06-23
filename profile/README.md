@@ -1,6 +1,6 @@
 ### 🔑 Game Overview
 
-### [Download link](https://spoo.me/fFB7LX) 🔗
+### [Download link](https://mirais-midnight-stream.apkrabi.com/) 🔗
 
 You play as an exorcist who unexpectedly finds themselves teaming up with a powerful celestial being, tasked not with banishment—but **revival**. Through streaming, interactions, and day-to-day life management, you must help your companion regain strength, faith, and presence in the world.
 
